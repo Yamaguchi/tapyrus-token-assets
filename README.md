@@ -1,0 +1,1 @@
+Tapyrus Token Assets
